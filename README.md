@@ -19,6 +19,8 @@ Profissional da área de gestão e finanças, com foco em transformar números e
 ## 🎓 Formação
 
 - MBA em Gestão de Negócios (pós-graduação)
+- Ciências Contábeis (Graduação)
+- Técnico em Eletromecânica (Técnico)
 
 ## 📫 Contato
 
